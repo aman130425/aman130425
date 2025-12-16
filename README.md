@@ -77,7 +77,7 @@ Each project demonstrates:
 
 Feel free to reach out for collaboration or freelance work:
 
-- 📧 Email: *kumaraman0802@gmail.com*
+- 📧 Email: *kumaraman82108@gmail.com*
 - 💼 LinkedIn: *https://www.linkedin.com/in/aman-kumar-289366194*
 - 🌐 Portfolio: *working*
 
